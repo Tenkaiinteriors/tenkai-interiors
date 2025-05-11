@@ -1,6 +1,6 @@
 # Welcome to Noobs Duels Kingdom™
-#
-#
+
+
 **Server Rules:**
 * Do not discriminate against someone's race, religion etc.
 * Do not FFA, Revenge FFA or Mass FFA outside of designated FFA zones.
@@ -14,4 +14,4 @@
 
 <a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
 
-https://media.discordapp.net/attachments/1362379344072146944/1370967250479091832/NoobDuels.jpg
+![Jack Sparrow](https://github.com/RESIDENTgiveme/motd/assets/129698151/c162e135-8f96-4f97-bca5-fef512bb4bd2)
