@@ -12,7 +12,7 @@
 * Rocks, Crossbows, Bear Traps, Toolboxes and Fire & Smoke Bombs are not allowed in duel zone.
 * Beartraps not allowed on ffa entrance same as nonstop firebombs or spikes what can block it.
 
-**Map Rules**
+**Map Rules:**
 ![Noobs Duels Kingdom™](https://github.com/Tenkaiinteriors/tenkai-interiors/blob/main/Noobs.png)
 
 <a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
