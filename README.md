@@ -20,4 +20,4 @@
 
 <a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
 
-![](https://github.com/user-attachments/assets/41114afa-cc7e-4238-99f7-6ffc1445084c)
+![](https://github.com/user-attachments/assets/2588641c-8db5-484a-b437-22a9c8c64b28)
