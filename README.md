@@ -14,4 +14,4 @@
 
 <a id="Noobs Duels Kingdom Discord Server">https://discord.gg/4geAu88gvM</>
 
-![](https://media.discordapp.net/attachments/1361686047293051002/1370831952948629785/Noobs_1.png)
+![Seymour](https://media.discordapp.net/attachments/1361686047293051002/1370831952948629785/Noobs_1.png)
