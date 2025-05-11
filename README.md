@@ -13,6 +13,7 @@
 * Beartraps not allowed on ffa entrance same as nonstop firebombs or spikes what can block it.
 
 **Map Rules:**
-![Noobs Duels Kingdom](https://raw.githubusercontent.com/Tenkaiinteriors/tenkai-interiors/refs/heads/main/NoobDuels.jpg)
+![Noobs](https://github.com/user-attachments/assets/2795f1c4-d358-4f18-a9c9-1656a47341d1)
 
 <a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
+
