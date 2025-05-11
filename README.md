@@ -14,4 +14,4 @@
 
 <a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
 
-![Jack Sparrow](https://github.com/RESIDENTgiveme/motd/assets/129698151/c162e135-8f96-4f97-bca5-fef512bb4bd2)
+![Jack Sparrow](https://github.com/RESIDENTgiveme/motd/assets/129698151/c162e135-8f96-4f97-bca5-fef512bb4bd2](https://github.com/Tenkaiinteriors/tenkai-interiors/blob/main/Noobs.png)
