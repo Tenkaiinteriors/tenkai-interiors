@@ -12,6 +12,6 @@
 * Rocks, Crossbows, Bear Traps, Toolboxes and Fire & Smoke Bombs are not allowed in duel zone.
 * Beartraps not allowed on ffa entrance same as nonstop firebombs or spikes what can block it.
 
-<a id="Noobs Duels Kingdom Discord Server">https://discord.gg/4geAu88gvM</>
+<a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
 
 https://media.discordapp.net/attachments/1362379344072146944/1370967250479091832/NoobDuels.jpg
