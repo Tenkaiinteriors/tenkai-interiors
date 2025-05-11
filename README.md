@@ -2,6 +2,7 @@
 
 # Welcome to Noobs Duels Kingdom™
 
+<a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
 
 **Server Rules:**
 * Do not discriminate against someone's race, religion etc.
@@ -18,6 +19,5 @@
 
 ![](https://github.com/user-attachments/assets/6a133e1b-a14e-4605-bd40-f4700f186fe2)
 
-<a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
 
 ![](https://github.com/user-attachments/assets/2588641c-8db5-484a-b437-22a9c8c64b28)
