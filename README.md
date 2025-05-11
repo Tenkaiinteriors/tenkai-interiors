@@ -16,7 +16,7 @@
 
 **Map Rules:**
 
-![](https://github.com/user-attachments/assets/d97faed0-ba97-47d5-8e2f-816cac5ba1f1)
+![](https://github.com/user-attachments/assets/6a133e1b-a14e-4605-bd40-f4700f186fe2)
 
 <a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
 
