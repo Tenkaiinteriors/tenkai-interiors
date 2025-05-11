@@ -1,6 +1,6 @@
 # Welcome to Noobs Duels Kingdom™
-
-
+#
+#
 **Server Rules:**
 * Do not discriminate against someone's race, religion etc.
 * Do not FFA, Revenge FFA or Mass FFA outside of designated FFA zones.
