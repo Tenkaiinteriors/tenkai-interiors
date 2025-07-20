@@ -1,4 +1,4 @@
-![](https://github.com/user-attachments/assets/ef299903-b718-4b26-959f-36e100620d70)
+<img width="310" height="307" alt="Screenshot 2025-07-20 at 01-04-24 Pin by 52 on personajes sports logo Esports logo Sports logo design Team logo design" src="https://github.com/user-attachments/assets/5735e2e1-dfc0-47df-8dc0-074f378301a8" />
 
 # Welcome to EMPIRE DUELS™ [NO FFA]
 
