@@ -1,4 +1,4 @@
-![Empire](https://github.com/user-attachments/assets/5f61496a-01d0-434a-9d2b-c676c0f0c584)
+![](https://github.com/user-attachments/assets/5f61496a-01d0-434a-9d2b-c676c0f0c584)
 
 # Welcome to EMPIRE DUELS™ [NO FFA]
 
