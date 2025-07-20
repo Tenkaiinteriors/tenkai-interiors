@@ -1,8 +1,8 @@
 ![](https://github.com/user-attachments/assets/ef299903-b718-4b26-959f-36e100620d70)
 
-# Welcome to Noobs Duels Kingdom™
+# Welcome to EMPIRE DUELS™ [NO FFA]
 
-<a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
+<a id="Click Here to Join Empire Duels™ Discord Server">https://discord.gg/AtAtHJrfhW</>
 
 **Server Rules:**
 * Do not discriminate against someone's race, religion etc.
