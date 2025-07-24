@@ -15,8 +15,4 @@
 * Rocks, Crossbows, Bear Traps, Toolboxes and Fire & Smoke Bombs are not allowed in duel zone.
 * Beartraps not allowed on ffa entrance same as nonstop firebombs or spikes what can block it.
 
-**Map Rules:**
-* R = Friendly FFA
-* CC = Duels Only
-* L = Duels Only
-* Sex = FFA Arena
+![](https://github.com/user-attachments/assets/c8f195be-77be-48b3-9e21-c7a024d551b5)
